@@ -1,4 +1,4 @@
- ㅤㅤ ㅤ **OG CEO OF WORMCAPTAIN (Green x Red - among us show)**
+  **OG CEO OF WORMCAPTAIN (Green x Red - among us show)**
 
 <img width="393" height="13" alt="Image" src="https://github.com/user-attachments/assets/7a972065-9685-456c-88f3-75dc8cf616a8" />
 
