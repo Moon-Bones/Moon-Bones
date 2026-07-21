@@ -1,4 +1,10 @@
+${\textsf{\color{#de0a26} You're}}$ ${\textsf{\color{#228B22}my}}$ early mornin' kisses.
 
+ ㅤㅤ a thousand answered ${\textsf{\color{#de0a26}wishes}}$ ...
+
+ ㅤㅤ  ㅤㅤ Aint nobody else, like ${\textsf{\color{#de0a26}y}}$
+${\textsf{\color{#228B22}o}}$
+${\textsf{\color{#de0a26}u}}$ !
 
 <img width="868" height="50" alt="Image" src="https://github.com/user-attachments/assets/73162faf-cd70-4e78-9e4f-19cf83b96031" />
 
