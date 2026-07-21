@@ -24,5 +24,5 @@ ${\textsf{\color{#de0a26}u}}$ !
  ㅤㅤ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/ee9ad2f3-f259-48e3-a655-d7a43b2f7e67" /> **Read Dni and Byi please! (˶˃ᆺ˂˶)** <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/336eecc6-991b-41f6-9cde-74b641916084" />
  
 ㅤㅤ ㅤ  ㅤ 
- ㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b1d34118-4224-42ff-9eb8-78e3d2a68d4d" /> [Atabook](https://astrosnap.atabook.org) and [Prns!]() <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6f3d4340-94f6-4585-847a-dcd9122e2263" />
+ ㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/b1d34118-4224-42ff-9eb8-78e3d2a68d4d" /> [Atabook](https://astrosnap.atabook.org) and [Prns!](https://pronouns.cc/@Chanceyy) <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6f3d4340-94f6-4585-847a-dcd9122e2263" />
 
